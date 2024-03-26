@@ -1,6 +1,6 @@
 ¡Amplía tu alcance digital 
-💻 y optimiza tus operaciones con mis servicios profesionales como asistente virtual! 
-🚀 Respuesta 100% rápida, Con una sólida formación en sistemas y programación, 🚀 13 años de experiencia en gestión, brindando un conjunto completo de habilidades para satisfacer tus necesidades digitales. 
+optimiza tus operaciones con mis servicios profesionales como asistente virtual! 
+Respuesta 100% rápida, Con una sólida formación en sistemas y programación, 13 años de experiencia en gestión, brindando un conjunto completo de habilidades para satisfacer tus necesidades digitales. 
 Asistencia Virtual: 
 Gestión de calendarios y programación 
 Realización de tareas administrativas en diversas áreas 
